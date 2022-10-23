@@ -23,7 +23,7 @@ The tendency to believe that the other side is wrong because they are misinforme
 
 ### The mass man
 If there is such an entity as the "masses", there must exist a singular primitive entity such as the "mass man".
-[...] and with that argument, I hereby make my argument that each trying of "educating the masses" of liberalism will inevitablty fail before our eyes, because there is no such thing as this so called "masses" to work upon. So, what's left for us?
+[...] and with that argument, I hereby make my argument that each trying of "educating the masses" of liberalism will inevitably fail before our eyes, because there is no such thing as this so called "masses" to work upon. So, what's left for us?
 
  - Here I can talk about a range of different cognitive biases. See first module.
 
@@ -54,7 +54,7 @@ For some, the word "freedom" conjures up images of “anything goes,” of disor
 
 We deserve to be free because we can be held accountable for our acts; because we can make choices; because we can exercise self-control. Responsibility is not a burden we must bear to be free. Responsibility is the key to the realization of freedom.
 
- - Maybe take a look at some anarquist references through taoism
+ - Maybe take a look at some anarchist references through taoism
 
  # Arc Two - Leadership
 

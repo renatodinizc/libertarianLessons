@@ -34,11 +34,18 @@ At the end of the day, the ones who agree with you must be enlighten by their ex
 
 Naive realism would be the credo that we observe the world objectively, in a unmediated way. What we see in the world is actually the world, without any interference whatsoever from outside. So we expect that other people share our views and beliefs about that same world. And since the world is one, whom do we disagree are actually in fault with reality. Since they are not lunatics (well some of them actually are), there must be a reason for that difference in perspective. It must reside into their experiences and how it inadvertently disrupts how they perceive reality (in a non-enlighten way of course).
 
-We can even admit that we can sometimes change our views, but at the end of the day, we maintain that NOW we see reality in a objectively way, and prior to that change we may saw it in a biased way.
+We can even admit that we ourselves can sometimes change views, but at the end of the day, we maintain that only now we see reality in a objectively way, and prior to that change we may saw it in a biased, or at least inaccurately way. We prefer to think that ourselves from five to ten years ago were stupid and now we are wise, than to fancy that we had already an accurate view of the world, but now we simply have appended new experiences onto our lives.
+
+We fall into an illusion that Daniel Gilbert call's "End of History", in which individuals of all ages believe that they have experienced significant personal growth and changes in taste up to the present moment, but will not substantially grow into different tastes in the future. Despite recognizing that their perceptions have evolved, individuals predict that their perceptions will remain roughly the same.
 
 *Add blind spot bias references*
 
-https://soundcloud.com/youarenotsosmart/062-naive-realism-lee-ross?utm_source=youarenotsosmart.com&utm_campaign=wtshare&utm_medium=widget&utm_content=https%253A%252F%252Fsoundcloud.com%252Fyouarenotsosmart%252F062-naive-realism-lee-ross
+## If only we could expose others to my facts...
 
-* Continue at 37min mark
+The assumption is that as long as they are rational, if you expose those people to the same collection of facts that you have been exposed to, they are supposed to think just like you. If after the exposition the other person agrees with you, than she is reasonable. And when we try that and it doesn't work, we become frustrated and the only choice that's left for us is to believe that the other is been non-rational or unreasonable about the issue in dispute.
+
+> *People want to be understood but no one seeks to understand.*
+
+
+
 
