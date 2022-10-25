@@ -41,6 +41,7 @@ We have learned that ideas cannot be "crammed down the throat" of another. Exper
 
 - Backfire effect
 - Active information avoidance
+- Pluralistic ignorance
 
 ### Self-flourishing as an end in itself toward freedom
 All individuals are faced with the problem of whom to improve, themselves or others. Those who don’t even try or, when trying, find self-improving too difficult, usually seek to expend their energy on others. Their energy has to find some target. Those who succeed in directing their energy inward become moral leaders. Those who fail to direct their energy inward and let it manifest itself externally become immoral leaders.
