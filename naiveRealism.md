@@ -7,6 +7,9 @@
 Because people tend to think of their own take on events not as a “take” but as a veridical assessment of what is taking place, anyone who tries to offer an even-handed account of events will tend to be seen as biased and hostile to the perceiver’s interests.
 
 Political groups tend to think that networks which flatter to the other side of the  political spectrum as blatantly dishonest, whereas they see networks that shares their perspective as a source of refreshingly clear thinking.
+
+https://www.scielo.br/j/dados/a/R7CjTc36wwQ8JRqJXD3qTRt/#ModalFigf06
+
 ### False consensus effect - Lee Ross
 
 In psychology, the false consensus effect, also known as consensus bias, is a pervasive cognitive bias that causes people to “see their own behavioral choices and judgments as relatively common and appropriate to existing circumstances”. In other words, they assume that their personal choices, beliefs, and actions are the widespread norm among the general population — the "obvious choice" or the "common sense".

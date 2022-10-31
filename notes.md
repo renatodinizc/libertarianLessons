@@ -65,3 +65,9 @@ We deserve to be free because we can be held accountable for our acts; because w
 ### Effective teams, vulnerability and trust
 
 # Act Three - The self
+
+
+
+Fast food lower our cost to acquire calories, and we got fat. But now we figure it out on how to solve it.
+
+Social media lowered our cost to exhibit group behaviour. And we will figure that one out as well.
